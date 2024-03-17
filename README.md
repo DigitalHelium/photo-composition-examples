@@ -2,7 +2,7 @@
 
 ---
 
-## Ansel Adams
+## Ansel Adams, U.S (1902-1984)
 
 ### *Half Dome Of Glacier Point, Yosemite National Park, 1937* [^1]
 
