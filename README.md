@@ -8,7 +8,7 @@
 
 ![Half Dome Of Glacier Point](/photos/ansel_adams_half_dome_from_glacier_point_original.jpg)
 
-##### Rule of Thirds
+##### **Rule of Thirds**
 
 ![Rule of Thirds](/photos/ansel_adams_half_dome_from_glacier_point_thirds.jpg)
 
